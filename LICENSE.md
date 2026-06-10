@@ -1,4 +1,4 @@
-# 
+# Avancé dex liquidity bot extensions pour Mac OS | Gratuit dex liquidity bot extensions pour PC Windows. Avec ordres take-profit et pools de liquidité DEX — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
